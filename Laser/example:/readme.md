@@ -5,3 +5,5 @@
 [Laser Cleaning: HIGH POWER 1000W!](https://youtu.be/Q8q3DZB_l6M)
 
 [Laser Rust Cleaning](https://youtu.be/HYGAhFWB9ok)
+
+[Most powerful 2000W handheld cleaning laser [4K compilation]](https://youtu.be/ssaNTgwY8zE)
