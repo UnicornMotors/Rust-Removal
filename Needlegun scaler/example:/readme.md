@@ -1,3 +1,5 @@
-[Classic car rust removal with pneumatic needle scaler / scabbler](https://youtu.be/y-Kbr4Wl50c)
-
-[removing rust with harbor freight compact needle scaler](https://youtu.be/GKJmI7R9DgM)
+- [How to Remove rust & corrosion from ford truck frame using an air needle scaler!](https://youtu.be/piLCxbZpbI4)
+- [Classic car rust removal with pneumatic needle scaler / scabbler](https://youtu.be/y-Kbr4Wl50c)
+- [removing rust with harbor freight compact needle scaler](https://youtu.be/GKJmI7R9DgM)
+- [Harbor Freight needle scaler any good?](https://youtu.be/rupXIa2nf34)
+- [Using needle scaler to clean frame.](https://youtu.be/Ci6cf8wDXnA)
