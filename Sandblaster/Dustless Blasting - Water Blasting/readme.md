@@ -9,3 +9,5 @@
 [Paint strip semi frame](https://youtu.be/Q1ilJeanByg)
 
 [Continental Dustless Blasting](https://youtu.be/LFIfkq_261E)
+
+[500bar high pressure cleaner for paint remover](https://youtu.be/Lfda0rczOb0)
