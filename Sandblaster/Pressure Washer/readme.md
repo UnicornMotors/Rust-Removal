@@ -10,3 +10,5 @@
 [Power Eagle Wet Sandblast Kit -VS- Rusty Truck Tailgate](https://youtu.be/ckAaoYJCjoA)
 
 [Power Eagle Wet Sand Blast Kit](https://youtu.be/kfA-IkaMRGE)
+
+[How To: Setup Wet Sandblast kit](https://youtu.be/szJoPLahB2M)
