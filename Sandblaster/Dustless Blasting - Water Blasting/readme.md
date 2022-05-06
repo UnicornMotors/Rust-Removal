@@ -11,3 +11,9 @@
 [Continental Dustless Blasting](https://youtu.be/LFIfkq_261E)
 
 [500bar high pressure cleaner for paint remover](https://youtu.be/Lfda0rczOb0)
+
+[500bar wet sand blaster for rust remove ship hull cleaning](https://youtu.be/p47KwS_X99c)
+
+[high pressure sandblasting 500 bar](https://youtu.be/waIbjltvUVo)
+
+[Sandblasting with water.](https://youtu.be/K8vyeMwRm0o)
