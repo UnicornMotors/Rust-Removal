@@ -9,3 +9,5 @@
 [Most powerful 2000W handheld cleaning laser [4K compilation]](https://youtu.be/ssaNTgwY8zE)
 
 [Comparing different laser machines: cleaning speed](https://youtu.be/M5Zpz1g3iCY)
+
+[QF Compact Laser Cleaning](https://youtu.be/w0p9ivbNvXU)
