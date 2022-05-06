@@ -16,6 +16,7 @@ https://en.wikipedia.org/wiki/Needlegun_scaler
 - [BOLTR: Needle Scaler | Harbor Freight Cheap-O](https://youtu.be/eCJCAHhaqIk)
 - [Harbor Freight Large & Small Needle Scaler Review](https://youtu.be/TGCcTrRJgIE)
 - [Air Needle Scaler | Central Pneumatic Compact | Rust Removal](https://youtu.be/91wdTASf8iU)
+- [Harbor Freight Tool Review (compact needle scaler)](https://youtu.be/HuNHa0lL6vc)
 
 # Guide
 - [The Most Affordable way to remove HEAVY RUST AND GRIME - Eastwood](https://youtu.be/M82_6d4CmQA)
