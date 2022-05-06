@@ -18,6 +18,7 @@ https://en.wikipedia.org/wiki/Needlegun_scaler
 - [Air Needle Scaler | Central Pneumatic Compact | Rust Removal](https://youtu.be/91wdTASf8iU)
 
 # Guide
+- [The Most Affordable way to remove HEAVY RUST AND GRIME - Eastwood](https://youtu.be/M82_6d4CmQA)
 - [Why NEEDLE SCALERS Are GREAT On BIG WELDING PROJECTS!!!](https://youtu.be/el0dZu9PuFE)
 - [Easiest Way to Clean Rust Scale Besides for Sandblasting](https://youtu.be/8oSgtDGYMTU)
 - [Harbor Freight CENTRAL PNEUMATIC Air Needle Scaler review](https://youtu.be/ijpdkB-f3I0)
