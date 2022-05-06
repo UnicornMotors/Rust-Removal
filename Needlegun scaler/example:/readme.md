@@ -4,3 +4,4 @@
 - [Harbor Freight needle scaler any good?](https://youtu.be/rupXIa2nf34)
 - [Using needle scaler to clean frame.](https://youtu.be/Ci6cf8wDXnA)
 - [Easy ways to remove paint from metal (needle scaler) NO CHEMICALS](https://youtu.be/KNZlJfr_zPs)
+- [Thick military paint removal: What is a needle scale, and why do you need one?](https://youtu.be/0F8f4h9LlpY)
