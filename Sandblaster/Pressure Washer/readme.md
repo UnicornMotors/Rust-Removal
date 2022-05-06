@@ -12,3 +12,5 @@
 [Power Eagle Wet Sand Blast Kit](https://youtu.be/kfA-IkaMRGE)
 
 [How To: Setup Wet Sandblast kit](https://youtu.be/szJoPLahB2M)
+
+[Power Eagle Wet Sandblast kit - Plow Frame](https://youtu.be/Yb_vXFbhc2I)
